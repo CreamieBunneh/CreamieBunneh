@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://qph.cf2.quoracdn.net/main-qimg-1ff13c43a01902518e60b6b069a7e6fc" width="1000" alt="Strawberries">
+  <img src="https://qph.cf2.quoracdn.net/main-qimg-1f7ae19949165ef74bb4940621f6417d" width="1000" alt="Bows">
 
   ![](https://komarev.com/ghpvc/?username=CreamieBunneh&color=ffe4b9)
 
@@ -7,14 +7,14 @@
 ![](https://i.pinimg.com/1200x/34/52/ea/3452ea19840ee1f2a526a3a3a9260939.jpg)
 
 <p align="center">
-  <img src="https://media.tenor.com/xd9jqhQBJwAAAAAi/strawberry-shortcake-gif.gif" width="1000" alt="Strawberry Shortcake">
+  <img src="https://qph.cf2.quoracdn.net/main-qimg-7f9ea69e1f42c90d4eab61fd0757a477" width="1000" alt="Crecent Moon">
 </p>
 
 <p align="center">  
 Cream | Creamie | Genesis | Gen | Genny | 21 | Single | Cream Kin | #1 Sonamy Fan | 
 
 <p align="center">
-  <img src="https://qph.cf2.quoracdn.net/main-qimg-19ecf036c4d6e8a73808f9ba88d4579a" width="1000" alt="Strawberry Shortcake">
+  <img src= "https://qph.cf2.quoracdn.net/main-qimg-ba83d03de5d11e6680eb5c610c3aa497" width="1000" alt="Strawberry Shortcake">
 </p>
 
 Hewooo! Welcome to meh profile! <3 Am Cream but chu can call meh Creamie! Either is okie! Meh usually sits in de STH area and MLP Area! if chu see meh go afk then that means am busy!
@@ -96,9 +96,7 @@ Sonally
 Knuxouge
 <p align="center">
   
- ![](https://i.pinimg.com/originals/f6/26/f4/f626f426b70147a17985c91c545709a6.gif)
-
-![](https://64.media.tumblr.com/54fda4c46aa15243e6a8eef38b7ba3e9/fc082b992ca2b0e7-0d/s1280x1920/9a700475314ca786a9d4195d3fb6c04172b16cbf.gif)
+ 
 
 Meh has become a cream kin neow mwhehehehe MEH LOVE CWEAM YAYYYYYY
 
@@ -108,7 +106,7 @@ Long Live Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy 
 And thats All! Thank Chu For Reading! <3
 
 <p align="center">
-  <img src="https://media.tenor.com/xd9jqhQBJwAAAAAi/strawberry-shortcake-gif.gif" width="1000" alt="Strawberry Shortcake">
+  <img src="https://qph.cf2.quoracdn.net/main-qimg-7f9ea69e1f42c90d4eab61fd0757a477" width="1000" alt="Cresent Moon">
 </p>
 
 
